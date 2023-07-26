@@ -1,0 +1,1 @@
+Sou um jovem de 19 anos de idade, no momento estudando programação com foco na web. Estou diariamente buscando conhecimento e estudando por conta propria para futuramente alcançar a 1° vaga como backend developer - Brasil. 26/07/23.
